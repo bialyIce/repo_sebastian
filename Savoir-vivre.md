@@ -10,3 +10,6 @@ Bon Ton, to nic innego jak właściwe zachowanie w określonych miejscach i sytu
 
 Zasady savoir-vivre’u dotyczą przede wszystkim zachowania się w szczególnych sytuacjach gdzie znajomość zasad dobrego wychowania jest niezbędna, gdy zależy nam na zrobieniu dobrego wrażenia, zaprezentowaniu się w towarzystwie, właściwej reakcji w danej sytuacji.
 
+## Uwarunkowania kulturowe Savoir-vivre
+
+Savoir-vivre jest uwarunkowany kulturowo, a więc znacząco różni się w zależności od szerokości geograficznej. Znajomość międzykulturowych zasad określana jest mianem cross-cultural savoir-vivre. Co ciekawe, to co w jednym kraju może okazać się wskazane i będzie budzić podziw w innym może być wytykane. Warto zatem znać odpowiednią etykietę w danym miejscu, jeśli zależy nam na tym, aby dobrze w nim wypaść.
